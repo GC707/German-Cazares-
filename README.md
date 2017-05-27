@@ -1,0 +1,2 @@
+# German-Cazares-
+Your new email addressgerman.cazares@mail.com Customer Number313824047 Contact email addressgermanc.cazares@gmail.com Security questionWhat city were you born in? Date of birthNov/10/1988Print account information To help you get the most out of your new mail.com email account we have sent you a Welcome Mail in which you can read more about how to get started.  About mail.comPrivacy PolicyTerms &amp; ConditionsPress Room © 2017 1&amp;1 Mail &amp; Media GmbH 
